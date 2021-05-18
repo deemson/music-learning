@@ -38,6 +38,22 @@ Blend of chest voice and falsetto (or head voice)
 
 BUB-BUB 8-5-3-1
 
+## Ep 52
+
+### The Shiny Solar Plexus
+
+[Video Link](https://www.youtube.com/watch?v=YwOI4hxEosM)
+
+Overdevelopment of the upper abs:
+
+- can cause vocal issues for weight lifters and dancers
+- indirect muscle pair with the larynx and interarytenoids
+
+Knowing how to breathe and to produce sounds absent of the solar plexus' squeeze is a big deal.
+
+Exercise 1: press in the solar plexus with a hand. Solar plexus will move out on both inhale and exhale.
+
+Exercise 2: MA 1-2-3-4-3-2-1 watch for solar plexus pop out
 
 ## Ep 82
 
