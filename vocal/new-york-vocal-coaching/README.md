@@ -12,6 +12,33 @@
 
 Exercise: 8-5-3-1
 
+## Ep 40
+
+### The Mix Voice
+
+1. Vocal Registers
+
+- Chest Voice
+- Falsetto
+- Vocal Fry
+
+2. The Mix
+
+Blend of chest voice and falsetto (or head voice)
+
+3. Cracking
+
+- vocal Cords event + resonanse event
+- compression control - compressed voice, de-compressed voice, over-compressed voice
+- head resonanse
+
+4. Exercise
+
+BUB-BUB 8-5-3-1
+
+
+[Video Link](https://www.youtube.com/watch?v=CYEsGuldIQY)
+
 ## Ep 82
 
 ### How To Not Strain Your Voice (Or Your Soul)
