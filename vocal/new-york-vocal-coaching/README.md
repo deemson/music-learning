@@ -27,10 +27,15 @@ Exercise: 8-5-3-1
 2. What Factors Cause Vocal STRAIN
 
 **S**etting
+
 **T**ime Duration
+
 **R**ange and Tessitura
+
 **A**mount of Training
+
 **I**ntensity
+
 **N**atural abilities
 
 3. What is Vocal Strain?
