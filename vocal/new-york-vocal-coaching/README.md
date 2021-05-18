@@ -2,6 +2,17 @@
 
 [YouTube Channel Link](https://www.youtube.com/channel/UCcxo5COqhVc84JYS_bRdLyg)
 
+## Ep 5
+
+### What's The Point Of Lip Trills?
+
+[Video Link](https://www.youtube.com/watch?v=10zTYfosRoY)
+
+- going from low to high with the same airflow
+
+Exercise: 8-5-3-1
+
+
 ## Ep 101
 
 ### The Greatest Vocal Exercise of All Time
