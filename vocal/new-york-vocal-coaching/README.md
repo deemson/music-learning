@@ -16,6 +16,8 @@ Exercise: 8-5-3-1
 
 ### The Mix Voice
 
+[Video Link](https://www.youtube.com/watch?v=CYEsGuldIQY)
+
 1. Vocal Registers
 
 - Chest Voice
@@ -36,8 +38,6 @@ Blend of chest voice and falsetto (or head voice)
 
 BUB-BUB 8-5-3-1
 
-
-[Video Link](https://www.youtube.com/watch?v=CYEsGuldIQY)
 
 ## Ep 82
 
